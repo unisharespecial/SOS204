@@ -1,0 +1,2 @@
+# SOS204-----LETME
+ SOS204 - İŞLETME
